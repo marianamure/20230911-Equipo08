@@ -1,4 +1,3 @@
-Mariana Muñoz
-Nicolas Castera
-Leonardo Favale
-Ronald Santamaria
+# Ronald Santamaria
+## Perú
+### Actualmente vivo en Argentina 🌎	:argentina:
